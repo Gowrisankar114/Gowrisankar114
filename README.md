@@ -1,4 +1,4 @@
-👋 Hi there! I'm Gowrisankar (@Gowrisankar114)
+👋 Hi there! I'm Gowrisankar 
 🎨 UI/UX Designer | 💻 FlutterFlow Dev | 🚀 Creative Problem Solver
 
 🌟 Passionate about crafting intuitive and elegant user experiences that make an impact.
