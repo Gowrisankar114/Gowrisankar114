@@ -5,8 +5,7 @@
 🔥 Always on the lookout for new design trends and innovative app ideas.
 💡 Bringing ideas to life through stunning visuals and smooth interactions.
 
-💌 Let’s connect: gowrisankar2620@gmail.com
-
+💌 Let’s connect: designs.gs11@gmail.com
 💡 Fun fact: I believe great design isn’t just what it looks like but how it works!
 
 
